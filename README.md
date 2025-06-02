@@ -1,2 +1,2 @@
 
-Autodidact Engineer  | C++ ⚔️ Python 🧬 Arch Linux ☯️ |
+Autodidact Engineer  | C++ ⚔️ Python 🧬 Javascript 🎨 Arch Linux ☯️ |
